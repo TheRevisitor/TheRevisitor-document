@@ -5,5 +5,7 @@ He got off discord
 
 Simping for fortnite skins (sexually harassing fortnite skins)
 
+Please ignore the name, the screenshot aint mine (its wesley's)
+
 ![caption](https://github.com/user-attachments/assets/9da26bd7-c640-4121-a8b6-a6e0d49fdf95)
 
