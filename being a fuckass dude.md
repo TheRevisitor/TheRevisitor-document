@@ -11,3 +11,7 @@ Please ignore the name, the screenshot aint mine (its wesley's)
 Nottacs (Adam) trying to rat poor revisitor
 
 ![image](https://github.com/user-attachments/assets/9566ba8d-edda-4a11-ba73-8fc24143385a)
+
+Disgusting. This can be read through regardless of the intent even if it was meant as a joke, it's pedophilia and simply not funny. I don't understand how anyone could laugh at this or even start a conversation like this, joking or not. You must be sick in the head.
+
+![image](https://github.com/user-attachments/assets/d3da2baa-0e12-4674-a9dd-9391c6836f15)
