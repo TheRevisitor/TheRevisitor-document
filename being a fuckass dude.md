@@ -15,3 +15,8 @@ Nottacs (Adam) trying to rat poor revisitor
 Disgusting. This can be read through regardless of the intent even if it was meant as a joke, it's pedophilia and simply not funny. I don't understand how anyone could laugh at this or even start a conversation like this, joking or not. You must be sick in the head.
 
 ![image](https://github.com/user-attachments/assets/d3da2baa-0e12-4674-a9dd-9391c6836f15)
+
+
+What is this? this is straight up illegal and highly inappropriate. Sending a cat in discord dms.
+
+<img width="562" height="444" alt="image" src="https://github.com/user-attachments/assets/711ed9e3-4560-4b1e-8b83-ce1b6f052a83" />
