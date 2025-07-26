@@ -20,3 +20,7 @@ Disgusting. This can be read through regardless of the intent even if it was mea
 What is this? this is straight up illegal and highly inappropriate. Sending a cat in discord dms.
 
 <img width="562" height="444" alt="image" src="https://github.com/user-attachments/assets/711ed9e3-4560-4b1e-8b83-ce1b6f052a83" />
+
+(credits to puppe)
+
+<img width="408" height="171" alt="image" src="https://github.com/user-attachments/assets/3b40ad76-9057-4d20-8346-9371a8f0d3b0" />
