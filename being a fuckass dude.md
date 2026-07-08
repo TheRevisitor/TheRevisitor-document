@@ -30,3 +30,8 @@ Revi sending a mega folder...
 <img width="953" height="484" alt="image" src="https://github.com/user-attachments/assets/357c49ef-aa3c-4885-8591-71ae1eedb1bd" />
 
 this is highly innapropriate as you're not supposed to use paks made by projects outside of the project.
+
+He js didnt reply to me instatyluey
+
+<img width="394" height="132" alt="image" src="https://github.com/user-attachments/assets/d11f2c22-fcc5-479a-bd5d-c7b558a5fc28" />
+
