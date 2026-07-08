@@ -27,6 +27,6 @@ What is this? this is straight up illegal and highly inappropriate. Sending a ca
 
 Revi sending a mega folder...
 
-https://cdn.discordapp.com/attachments/1431997116862955533/1521932433971351572/caption.gif?ex=6a4f3348&is=6a4de1c8&hm=f3bcfffe0677ce98d8f426fd690a5d1217e0b43b719eb24c39b8dfb9d7fda847&
+<img width="953" height="484" alt="image" src="https://github.com/user-attachments/assets/357c49ef-aa3c-4885-8591-71ae1eedb1bd" />
 
 this is highly innapropriate as you're not supposed to use paks made by projects outside of the project.
