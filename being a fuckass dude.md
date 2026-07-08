@@ -24,3 +24,9 @@ What is this? this is straight up illegal and highly inappropriate. Sending a ca
 (credits to puppe)
 
 <img width="408" height="171" alt="image" src="https://github.com/user-attachments/assets/3b40ad76-9057-4d20-8346-9371a8f0d3b0" />
+
+Revi sending a mega folder...
+
+https://cdn.discordapp.com/attachments/1431997116862955533/1521932433971351572/caption.gif?ex=6a4f3348&is=6a4de1c8&hm=f3bcfffe0677ce98d8f426fd690a5d1217e0b43b719eb24c39b8dfb9d7fda847&
+
+this is highly innapropriate as you're not supposed to use paks made by projects outside of the project.
