@@ -35,3 +35,5 @@ He js didnt reply to me instatyluey
 
 <img width="394" height="132" alt="image" src="https://github.com/user-attachments/assets/d11f2c22-fcc5-479a-bd5d-c7b558a5fc28" />
 
+He has said very inappopriate message, stating that he did sexual stuff to males.
+![caption](https://cdn.discordapp.com/attachments/975134350251261963/1474841132570509433/andrewwatermark.gif?ex=6a4f4517&is=6a4df397&hm=9d9f56b3af63e4d1177d8f3a5d4c69e93426040c56455955a835cb3102babf3e&)
